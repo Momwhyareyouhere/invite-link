@@ -1,1 +1,1 @@
-# invite-link.github.io
+# invite-link
